@@ -1,1 +1,1 @@
-# [CLICK ME :)](https://github.com/twose)
+# [CLICK ME >o<](https://github.com/twose)
